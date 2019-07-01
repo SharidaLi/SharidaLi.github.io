@@ -1,2 +1,0 @@
-# SharidaLi.github.io
-blog
